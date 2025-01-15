@@ -1,0 +1,2 @@
+# Numerological_Analysis
+ Numerological_Analysis
